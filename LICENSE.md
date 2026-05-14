@@ -1,4 +1,4 @@
-#  
+#  Experience enter brainrot heads like never before with enter brainrot heads Script secure, the #1 Script. Includes auto-upgrade and auto-collect for
 
 
 
